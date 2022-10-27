@@ -1,1 +1,0 @@
-# mini_proget_GLA
